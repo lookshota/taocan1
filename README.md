@@ -1,2 +1,2 @@
 # 买资源找下面的TG账号
-[123](https://t.me/fuck_shota)
+[@fuck_shota](https://t.me/fuck_shota)
